@@ -7,7 +7,7 @@
 - 💬 Ask me about accounting.
 - 📫 How to reach me: torrescruz.drika@gmail.com
 - 😄 Pronouns: Ela/Dela/She/Her
-- ⚡ Fun fact: I have a graduation in accounting, but I fell in love with technology, and so on I'have being studying it.
+- ⚡ Fun fact: I have a graduation in accounting, but I fell in love with technology, and so on I'have been studying it.
 
 <!-- - 👯 I’m looking to collaborate on ... -->
 <!-- - 🔭 I’m currently working on ... -->
